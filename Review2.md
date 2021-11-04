@@ -10,3 +10,5 @@ Apex legends doet het goed als het gaat om visuals en character design. Apex leg
 Apex legends vereist tactisch inzicht, en goede communicatie met teamgenoten. het is een solide game waar visueel erg veel levendigheid in zit. de variatie van characters, hun ablities, en maps maakt Apex legends een plezierig spel wat niet snel als herhalend gezien kan worden.
 
 ![apex legends](apex.jpg) 
+
+Mooie review
